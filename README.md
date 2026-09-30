@@ -20,4 +20,4 @@
 
 **Under Development**
 
-More memes. More elements. More brainrot. More
+More memes. More elements. More brainrot. More fun.
